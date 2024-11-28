@@ -17,3 +17,4 @@ Examen piloto
 | Química               | 5.60                | 2.70                   | 5.98                | 2.86                   | 5.87                | 2.93                   | 7.92      | 4.38         |
 | Sociología            | 5.07                | 2.87                   | 5.53                | 2.82                   | 5.53                | 2.93                   | 7.25      | 4.96         |
 
+https://gamma.app/generate/hqnlhfxu8b69695
